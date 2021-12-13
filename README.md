@@ -1,0 +1,1 @@
+# seminarcoba1.github
